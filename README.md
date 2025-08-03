@@ -5,7 +5,7 @@
 ㅤ ㅤㅤㅤ ㅤㅤ  ㅤ ㅤㅤㅤ
 ㅤ ㅤㅤㅤ ㅤㅤ  ㅤ ㅤㅤㅤㅤ  ㅤ ㅤㅤㅤ
  
-ㅤ ㅤㅤㅤ ㅤㅤ  ㅤ ㅤㅤㅤ [strawpage](https://romuluswolf.straw.page/) ㅤ![](https://nyaa.neocities.org/shrines/shrines%20css/chiikawa/chiikawaemb3_chara_img.png)
+ㅤ ㅤㅤㅤ ㅤㅤ  ㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤ  ㅤ ㅤ [strawpage](https://romuluswolf.straw.page/) ㅤ![](https://nyaa.neocities.org/shrines/shrines%20css/chiikawa/chiikawaemb3_chara_img.png)
 
  
   ㅤㅤ  ㅤㅤ  ㅤㅤ  ㅤㅤ 
