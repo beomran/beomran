@@ -9,7 +9,7 @@
 
  ㅤㅤ  
  
-ㅤ ㅤㅤㅤ ㅤㅤ  ㅤ ㅤㅤㅤㅤ![](https://cdn.cdnstep.com/LdeJIvDcaWqCTMQ6HRjE/cover-1.thumb256.png)
+ㅤ ㅤㅤ![](https://cdn.cdnstep.com/LdeJIvDcaWqCTMQ6HRjE/cover-1.thumb256.png)
 
  
   ㅤㅤ  ㅤㅤ  ㅤㅤ  ㅤㅤ 
