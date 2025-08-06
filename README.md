@@ -8,6 +8,8 @@
 ㅤ ㅤㅤㅤ ㅤㅤ [main strawpage](https://leejaeha.straw.page/) ㅤㅤ   [strawpage](https://arminkyo.straw.page/) ㅤㅤ
 
  ㅤㅤㅤ ㅤㅤ  ![](https://cdn.cdnstep.com/eFElt5N5NYdwUYTRkmHo/1.png)
+ 
+ plspls follow me everynyan i yearn for one million jazzy fans 
 
  
   ㅤㅤ  ㅤㅤ  ㅤㅤ  ㅤㅤ 
