@@ -5,11 +5,11 @@
 ㅤ ㅤㅤㅤ ㅤㅤ  ㅤ ㅤㅤㅤ
 ㅤ ㅤㅤㅤ ㅤㅤ  ㅤ ㅤㅤㅤㅤ  ㅤ ㅤㅤㅤ
  
-ㅤ ㅤㅤㅤ ㅤㅤ  [main strawpage](https://romuluswolf.straw.page/) ㅤㅤ   [strawpage](https://arminkyo.straw.page/) ㅤㅤ@_@ !!
+ㅤ ㅤㅤㅤ ㅤㅤ  [main strawpage](https://romuluswolf.straw.page/) ㅤㅤ   [strawpage](https://arminkyo.straw.page/) ㅤㅤ
 
  ㅤㅤ  
  
-ㅤ ㅤㅤ![](https://cdn.cdnstep.com/LdeJIvDcaWqCTMQ6HRjE/cover-1.thumb256.png)
+ㅤ ㅤ![](https://nyaa.neocities.org/shrines/shrines%20css/chiikawa/chiikawaemb3_chara_img.png)
 
  
   ㅤㅤ  ㅤㅤ  ㅤㅤ  ㅤㅤ 
