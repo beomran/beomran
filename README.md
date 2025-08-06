@@ -5,9 +5,9 @@
 ㅤ ㅤㅤㅤ ㅤㅤ  ㅤ ㅤㅤㅤ
 ㅤ ㅤㅤㅤ ㅤㅤ  ㅤ ㅤㅤㅤㅤ  ㅤ ㅤㅤㅤ
  
-ㅤ ㅤㅤㅤ ㅤㅤ  [main strawpage](https://romuluswolf.straw.page/) ㅤㅤ   [strawpage](https://arminkyo.straw.page/) ㅤㅤ
+ㅤ ㅤㅤㅤ ㅤㅤ [main strawpage](https://romuluswolf.straw.page/) ㅤㅤ   [strawpage](https://arminkyo.straw.page/) ㅤㅤ
 
-![](https://static.wikia.nocookie.net/chiikawa/images/3/39/Site-community-image/revision/latest?cb=20250708062722)
+ ㅤㅤㅤ ㅤㅤ  ![](https://cdn.cdnstep.com/eFElt5N5NYdwUYTRkmHo/1.png)
 
  
   ㅤㅤ  ㅤㅤ  ㅤㅤ  ㅤㅤ 
