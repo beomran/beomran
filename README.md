@@ -5,7 +5,7 @@
 ㅤ ㅤㅤㅤ ㅤㅤ  ㅤ ㅤㅤㅤ
 ㅤ ㅤㅤㅤ ㅤㅤ  ㅤ ㅤㅤㅤㅤ  ㅤ ㅤㅤㅤ
  
-ㅤ ㅤㅤㅤ ㅤㅤ  ㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤ  ㅤ ㅤ [strawpage](https://romuluswolf.straw.page/) 
+ㅤ ㅤㅤㅤ ㅤㅤ  [main strawpage](https://romuluswolf.straw.page/) [strawpage](https://arminkyo.straw.page/)
 ㅤ ㅤㅤㅤ ㅤㅤ  ㅤ ㅤㅤㅤㅤ![](https://cdn.cdnstep.com/LdeJIvDcaWqCTMQ6HRjE/cover-1.thumb256.png)
 
  
