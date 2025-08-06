@@ -7,9 +7,7 @@
  
 ㅤ ㅤㅤㅤ ㅤㅤ  [main strawpage](https://romuluswolf.straw.page/) ㅤㅤ   [strawpage](https://arminkyo.straw.page/) ㅤㅤ
 
- ㅤㅤ  
- 
-ㅤ ㅤ![](https://nyaa.neocities.org/shrines/shrines%20css/chiikawa/chiikawaemb3_chara_img.png)
+![](https://static.wikia.nocookie.net/chiikawa/images/3/39/Site-community-image/revision/latest?cb=20250708062722)
 
  
   ㅤㅤ  ㅤㅤ  ㅤㅤ  ㅤㅤ 
