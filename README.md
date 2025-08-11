@@ -3,9 +3,9 @@
 
   ㅤ ㅤ ㅤ ㅤ#1 attack on titan fan 
 
- ㅤㅤㅤ ㅤㅤ  ![](https://assets.stickerswiki.app/s/attack_on_titan_junior_high/3faa1a61.thumb.webp)
+ ㅤㅤㅤ ㅤㅤ  ![](https://cdn.cdnstep.com/lwnbBx2QDggZFcT2ATJd/5.webp)
 
- sometimes i lokwey be making skins of characters i dont even know just cuz theyre cute plsmdomt jump me
+ 
  
  
   ㅤㅤ  ㅤㅤ  ㅤㅤ  ㅤㅤ 
