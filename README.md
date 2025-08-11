@@ -3,7 +3,7 @@
 
   ㅤ ㅤ ㅤ ㅤ#1 attack on titan fan 
 
- ㅤㅤㅤ ㅤㅤ  ![](https://cdn.cdnstep.com/lwnbBx2QDggZFcT2ATJd/5.webp)
+ ㅤㅤㅤ ㅤㅤ  ![](https://nyaa.neocities.org/shrines/shrines%20css/chiikawa/chiikawaemb3_chara_img.png)
 
  
  
