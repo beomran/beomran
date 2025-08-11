@@ -3,7 +3,7 @@
 
   ㅤ ㅤ ㅤ ㅤ#1 attack on titan fan 
 
- ㅤㅤㅤ ㅤㅤ  ![](https://s1.aigei.com/src/img/gif/65/65e1f2f8e2d844708f8cff65566e267c.gif?imageMogr2/auto-orient/thumbnail/!282x282r/gravity/Center/crop/282x282/quality/85/%7CimageView2/2/w/282&e=2051020800&token=P7S2Xpzfz11vAkASLTkfHN7Fw-oOZBecqeJaxypL:NJ-kpmVUuw9hlHsxZGtZnclBBzw=)
+ ㅤㅤㅤ ㅤㅤ  ![](https://assets.stickerswiki.app/s/attack_on_titan_junior_high/3faa1a61.thumb.webp)
  
  
  
