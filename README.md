@@ -8,6 +8,8 @@
 
  ㅤㅤㅤ ㅤㅤ  ![](https://nyaa.neocities.org/shrines/shrines%20css/chiikawa/chiikawaemb3_chara_img.png)
 
+  ㅤㅤㅤ ㅤㅤ  ![strawpage](https://beomran.straw.page/)
+
  
  
  
