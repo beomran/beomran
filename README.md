@@ -4,11 +4,8 @@
 
   ㅤ ㅤ ㅤ ㅤ
 
- ㅤㅤㅤ ㅤㅤ  ![](https://nyaa.neocities.org/shrines/shrines%20css/chiikawa/chiikawaemb3_chara_img.png)
+ ㅤㅤㅤ ㅤㅤ  ![](https://pbs.twimg.com/media/GdGxMzFWUAA6Ope.jpg)
 
-  ㅤㅤㅤ ㅤㅤ  [strawpage](https://beomran.straw.page/)
-
- 
  
  
   ㅤㅤ  ㅤㅤ  ㅤㅤ  ㅤㅤ 
