@@ -4,9 +4,7 @@
 ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ ㅤ [strawpage](https://ji9miowmeo.straw.page/) ㅤ    ![](https://64.media.tumblr.com/25a0408f5872073369c57d709f68fbeb/b70054f22ba99afe-6c/s75x75_c1/eb761bc61d8238555d2f130f1076f39c45f125db.gifv)ㅤ[atabook](https://beomran.atabook.org/) 
   ㅤ ㅤ ㅤ ㅤ
 
- ㅤㅤㅤ ㅤㅤ  ![](https://64.media.tumblr.com/8b78f7576c40c34eda8f1bfe75d68ec3/b63f74c23b4a4769-33/s1280x1920/4c19001f63eb73736c17c79042366978cd17e9eb.jpg)
-
-
+ ㅤㅤㅤ ㅤㅤ  
  
   ㅤㅤ  ㅤㅤ  ㅤㅤ  ㅤㅤ 
   
