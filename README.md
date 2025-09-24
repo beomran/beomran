@@ -1,7 +1,7 @@
 ㅤㅤㅤ  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wjdes5kajmt1gqhbzctuzbgid&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=wjdes5kajmt1gqhbzctuzbgid&redirect=true)
  ㅤㅤ
 
-ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ ㅤ [strawpage](https://ji9miowmeo.straw.page/) ㅤ    6c/s75x75_c1/eb761bc61d8238555d2f130f1076f39c45f125db.gifv)ㅤ[atabook](https://beomran.atabook.org/) 
+ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ ㅤ [strawpage](https://ji9miowmeo.straw.page/) ㅤ    ㅤ[atabook](https://beomran.atabook.org/) 
   ㅤ ㅤ ㅤ ㅤ
 
  ㅤㅤㅤ ㅤㅤ  
