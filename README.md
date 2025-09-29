@@ -4,7 +4,7 @@
 ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ ㅤ [strawpage](https://aotmin.straw.page/) ㅤ  ㅤㅤ   ㅤ[atabook](https://beomran.atabook.org/) 
 
 
-ㅤ  ㅤㅤㅤ  ㅤㅤㅤ  ㅤㅤㅤ  ㅤㅤㅤ  ㅤㅤㅤ  ㅤproship dni ㅤㅤ 
+ㅤ  ㅤㅤㅤ  ㅤㅤㅤ  ㅤㅤㅤ  ㅤㅤㅤ ㅤproship dni ㅤㅤ 
   ㅤ ㅤ ㅤ ㅤ
 
  ㅤㅤㅤ ㅤㅤ  
