@@ -2,7 +2,7 @@
  ㅤㅤ
   ㅤㅤ
 
-ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ ㅤ[strawpage](https://searlert.straw.page/)ㅤ     ㅤ[atabook](https://beomran.atabook.org/)ㅤ   ✩⠀⠀
+ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤㅤ[strawpage](https://searlert.straw.page/)ㅤ     ㅤ[atabook](https://beomran.atabook.org/)ㅤ   ✩⠀⠀
  ㅤㅤ
  ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ ㅤ
  ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ ㅤ
