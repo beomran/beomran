@@ -3,14 +3,9 @@
   ㅤㅤ
 
 ㅤㅤㅤ ㅤㅤ  ㅤㅤ[strawpage](https://wrsh.straw.page/)ㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤ [sign atabook](https://beomran.atabook.org/)ㅤ   ⠀⠀
- ㅤㅤ
- ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ ㅤ
- ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ ㅤ
+ ㅤㅤ ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ  ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ ㅤ
 
 ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ ㅤ  ㅤㅤㅤㅤㅤㅤ  ( ᴗ͈ˬᴗ͈)ഒ 
   
   ㅤㅤㅤ ㅤ  ㅤㅤㅤㅤㅤ 
-![](https://nyaa.neocities.org/shrines/shrines%20css/chiikawa/85807867.png)    
-
-
- ㅤㅤ
+![](https://nyaa.neocities.org/shrines/shrines%20css/chiikawa/85807867.png)   
