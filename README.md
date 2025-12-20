@@ -6,6 +6,5 @@
  ㅤㅤ ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ  ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ ㅤ
 
 ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ ㅤ  ㅤㅤㅤㅤㅤㅤ  ( ᴗ͈ˬᴗ͈)ഒ 
-  
-  ㅤㅤㅤ ㅤ  ㅤㅤㅤㅤㅤ 
+    ㅤㅤㅤ ㅤ  ㅤㅤㅤㅤㅤ 
 ![](https://nyaa.neocities.org/shrines/shrines%20css/chiikawa/chiikawaemb3_chara_img.png)   
