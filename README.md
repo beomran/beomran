@@ -10,7 +10,7 @@
 ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ ㅤ  ㅤㅤㅤㅤㅤㅤ  ( ᴗ͈ˬᴗ͈)ഒ 
   
   ㅤㅤㅤ ㅤ  ㅤㅤㅤㅤㅤ 
-![](https://64.media.tumblr.com/58709e4c75622a558f8a2856ea998192/2a5da151f0948118-da/s1280x1920/3e9310a9a890b60b2f16a8559fd6f980fb30cb71.pnj)    
+![](https://nyaa.neocities.org/shrines/shrines%20css/chiikawa/85807867.png)    
 
 
  ㅤㅤ
