@@ -2,7 +2,7 @@
  ㅤㅤ
   ㅤㅤ
 
-ㅤㅤㅤ ㅤㅤ  ㅤㅤ[strawpage](https://wrsh.straw.page/)ㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤ [sign atabook](https://beomran.atabook.org/)ㅤ   ⠀⠀
+ㅤㅤㅤ ㅤㅤ  ㅤㅤ[carrd](https://ji9gu.carrd.co/)ㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤ [sign atabook](https://beomran.atabook.org/)ㅤ   ⠀⠀
  ㅤㅤ ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ  ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ ㅤ
 
 ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ ㅤ  ㅤㅤㅤㅤㅤㅤ  ( ᴗ͈ˬᴗ͈)ഒ 
