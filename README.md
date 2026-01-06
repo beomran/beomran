@@ -2,7 +2,7 @@
  ㅤㅤ
   ㅤㅤ
 
-ㅤㅤㅤ ㅤ  ㅤㅤㅤ[straw](https://beomrans.straw.page/)ㅤㅤㅤㅤㅤ  ㅤ [sign atabook](https://beomran.atabook.org/)ㅤ   (ᵕ—ᴗ—)⠀⠀
+ㅤㅤㅤ ㅤ  ㅤㅤㅤ[straw](https://beomrans.straw.page/)ㅤㅤㅤㅤ ★ㅤ  ㅤ [sign atabook](https://beomran.atabook.org/)ㅤ    (˶˃ᆺ˂˶)
  ㅤㅤ ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ  ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ ㅤ
 
 
