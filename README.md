@@ -3,7 +3,7 @@
   ㅤㅤ
   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-ㅤㅤㅤ ㅤㅤㅤㅤ [read strawpage](https://wichhu.straw.page/)⠀⠀⠀⠀ㅤ [sign atabook](https://beomran.atabook.org/)ㅤ
+ㅤㅤㅤ ㅤㅤㅤㅤ [read strawpage](https://yuwish.straw.page/)⠀⠀⠀⠀ㅤ [sign atabook](https://beomran.atabook.org/)ㅤ
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ![](https://64.media.tumblr.com/952d8006a82376401f7781bc09570296/8d9e0ab3a27223a6-50/s1280x1920/efb219d870aa0933a62591276fe33c7236723d2d.pnj)
