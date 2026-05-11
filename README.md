@@ -6,7 +6,7 @@
 ㅤㅤㅤ ㅤㅤㅤㅤ [read strawpage](https://yuwish.straw.page/)⠀⠀⠀⠀ㅤ [sign atabook](https://beomran.atabook.org/)ㅤ
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-![](https://64.media.tumblr.com/952d8006a82376401f7781bc09570296/8d9e0ab3a27223a6-50/s1280x1920/efb219d870aa0933a62591276fe33c7236723d2d.pnj)
+![](https://64.media.tumblr.com/aa503d8751a0147ab64041360b921900/7b7a54e1bc7a9660-f1/s75x75_c1/b7e67bd060eb3e9a8a2afb1cf7759532bd3952b0.webp)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
  ㅤㅤ ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ  ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ ㅤ
