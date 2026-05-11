@@ -4,12 +4,12 @@
   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ![](https://64.media.tumblr.com/b862c437b9098275bdac9e119b4e3419/7b7a54e1bc7a9660-0f/s75x75_c1/d3c9683b615f9a79b46728f928a5e8435d1927aa.webp)
-ㅤㅤㅤ ㅤㅤ[read strawpage](https://yuwish.straw.page/)⠀⠀⠀⠀ㅤ [sign atabook](https://beomran.atabook.org/)ㅤ
+ㅤㅤㅤ[read strawpage](https://yuwish.straw.page/)⠀⠀⠀⠀ㅤ [sign atabook](https://beomran.atabook.org/)ㅤ
 
   ㅤㅤ
     ㅤㅤ
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-  ㅤㅤ![](https://64.media.tumblr.com/aa503d8751a0147ab64041360b921900/7b7a54e1bc7a9660-f1/s75x75_c1/b7e67bd060eb3e9a8a2afb1cf7759532bd3952b0.webp)
+![](https://64.media.tumblr.com/aa503d8751a0147ab64041360b921900/7b7a54e1bc7a9660-f1/s75x75_c1/b7e67bd060eb3e9a8a2afb1cf7759532bd3952b0.webp)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
  ㅤㅤ ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ  ㅤㅤㅤ ㅤㅤ  ㅤㅤㅤ ㅤ
