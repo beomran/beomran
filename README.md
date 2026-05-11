@@ -7,7 +7,6 @@
 ㅤㅤ  ㅤㅤㅤ[read strawpage](https://yuwish.straw.page/)⠀⠀⠀⠀ㅤ [sign atabook](https://beomran.atabook.org/)ㅤ
 
 ㅤㅤㅤ
-ㅤㅤㅤ   ㅤㅤㅤㅤㅤㅤㅤㅤ(｡˘ ᵕ ˘｡)ㅤ୭  ˚.
 ⠀⠀⠀⠀⠀⠀  ㅤㅤ  ㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤ  ㅤㅤ  ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀![](https://64.media.tumblr.com/aa503d8751a0147ab64041360b921900/7b7a54e1bc7a9660-f1/s75x75_c1/b7e67bd060eb3e9a8a2afb1cf7759532bd3952b0.webp)
 
