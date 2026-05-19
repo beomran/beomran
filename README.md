@@ -4,7 +4,7 @@
   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
-ㅤㅤ  ㅤㅤ ㅤㅤㅤ[read strawpage](https://yuwish.straw.page/)⠀⠀⠀⠀ㅤ [sign atabook](https://beomran.atabook.org/)ㅤ
+ㅤㅤ  ㅤㅤ ㅤㅤㅤ[strawpage](https://yuwish.straw.page/)⠀⠀⠀⠀ㅤ [atabook](https://beomran.atabook.org/)ㅤ
 
 ㅤㅤㅤ
 ⠀⠀⠀⠀⠀⠀  ㅤㅤ  ㅤㅤㅤㅤㅤㅤ
