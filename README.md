@@ -8,15 +8,7 @@
   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
   ⠀⠀⠀
   ㅤㅤ ㅤㅤㅤ
-  ㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤjazmineㅤㅤ sixteenㅤㅤ ㅤshe/her
-  ㅤㅤ ㅤㅤㅤ
-  
-  ㅤㅤ
-  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-  ⠀⠀⠀
-  ㅤㅤ ㅤㅤㅤ
-
-
+  ㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤ
 ㅤㅤ  ㅤㅤ ㅤㅤㅤ[strawpage](https://yuwish.straw.page/)⠀⠀⠀⠀ㅤ [atabook](https://beomran.atabook.org/)ㅤ
 
 ㅤㅤㅤ
