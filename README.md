@@ -3,7 +3,7 @@
   ㅤㅤ
   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
   ⠀⠀⠀
-  ㅤㅤ ㅤㅤ[strawpage](https://yuwish.straw.page/)
+ ㅤ[strawpage](https://yuwish.straw.page/)
   ㅤㅤ
   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
   ⠀⠀⠀
