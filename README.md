@@ -5,7 +5,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀ ⠀[strawpage](https://yuwish.straw.page/)⠀⠀⠀⠀⠀⠀[atabook](https://beomran.atabook.org/)
+⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀[atabook](https://beomran.atabook.org/)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀
 
