@@ -5,7 +5,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀ [strawpage](https://kittiecraft.straw.page/)⠀⠀⠀⠀⠀⠀⠀[atabook](https://beomran.atabook.org/)
+⠀⠀⠀⠀⠀⠀⠀ strawpage wip⠀⠀⠀⠀⠀⠀⠀[atabook](https://beomran.atabook.org/)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀
 
