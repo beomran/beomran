@@ -5,7 +5,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀ ]strawpage](https://caramerohs.straw.page/)⠀⠀⠀⠀⠀⠀⠀[atabook](https://beomran.atabook.org/)
+⠀⠀⠀⠀⠀⠀⠀ [strawpage](https://caramerohs.straw.page/)⠀⠀⠀⠀⠀⠀⠀[atabook](https://beomran.atabook.org/)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀
 
