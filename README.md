@@ -5,7 +5,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀⠀⠀
-⠀⠀[maint⠀⠀strawpage](https://wrshies.straw.page/)⠀⠀⠀⠀⠀ ⠀[my⠀⠀oc 🧁](https://hamicorn.straw.page/)⠀⠀⠀⠀⠀⠀[sign⠀⠀atabook](https://beomran.atabook.org/)
+⠀⠀[about⠀⠀me](https://wrshies.straw.page/)⠀⠀⠀⠀⠀ ⠀[my⠀⠀oc 🧁](https://hamicorn.straw.page/)⠀⠀⠀⠀⠀⠀[sign⠀⠀atabook](https://beomran.atabook.org/)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀
 
