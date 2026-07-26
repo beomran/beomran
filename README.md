@@ -1,2 +1,1 @@
-ㅤㅤㅤㅤㅤ  ( 🎵 ) ㅤㅤㅤㅤㅤㅤㅤ ✿  ♪  𝅗𝅥   🍭
-![](https://64.media.tumblr.com/ebe88c8fef9d8570d225edde5a605c4e/2a29c1c42d4ae99f-33/s500x750/d9cf9b2f2a44e4c7d1db95cc8c276dff52733878.gifv)
+![](https://64.media.tumblr.com/351ff01941b15c5a261582ab00fe78e7/ab741dc85aea5974-5d/s400x600/c16bf6aa95387f7a40d320d797f49ce6642ed9a9.gifv)
