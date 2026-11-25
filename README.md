@@ -9,7 +9,7 @@
 <div align="center">
  ‎ 
  
- [新BOOK](https://beomran.atabook.org/)‎ ‎ ‎ ‎ ‎ ‎ ‎ ♡‎ ‎ ‎ ‎ ‎ ‎  [STRAWPAGE](https://jazzicorn.straw.page/)‎‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎‎
+   [新𝗕𝗢𝗢𝗞‎‎](https://beomran.atabook.org/)‎ ‎ ‎ ‎ ‎ ‎ ‎ ♡‎‎ ‎ ‎ ‎ ‎ ‎ ‎ [𝗦𝗧𝗥𝗔𝗪𝗣𝗔𝗚𝗘](https://jazzicorn.straw.page/)‎‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎‎
 </div>
 ‎ 
 ‎ 
